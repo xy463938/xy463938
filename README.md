@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xy463938
-- 👀 I’m interested in skateboarding and tennis. And I like to play games, such as Valorant, shooter and so on.
+- 👀 I’m interested in skateboarding and tennis. And I like to play games, such as Valorant, Naruto Shippuden and so on.
 - 🌱 I’m currently learning mathematics and computer science.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
